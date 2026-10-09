@@ -1,0 +1,1007 @@
+✅【ag真人注册平台网站】🧧w̲8̲3̲.̲C̲C̲ 🧧【ag真人注册平台网站】🧧 9̲7̲6̲4̲.̲C̲C̲ 🧧玩电子充100送100🧧【甜宠97gh798ds过】hg08体育平台稳定运营15年，信誉看得见，安全始终如一✅
+
+👉678体育入口： 点击注册http://68848.cc
+
+👉【玩体育100送300】：点击注册 http://68848.cc
+
+✅️【玩电子充100送100】： http://s9858.cc 点击进入注册即可
+
+![](https://i.ibb.co/Q7RVC6bz/2.jpg)
+
+💡 是不是总觉得差一点就成功，结果每次都与预期背道而驰？
+
+🔍 是不是道理都懂、方法也学，一到实操就全乱了阵脚？
+
+⚖️ 别人稳步向前、张弛有度，而你还在靠感觉碰运气？
+
+⚠️ 清醒点！真正的赢家从来不是靠侥幸，而是靠清晰的规划、严格的执行和稳定的节奏！
+
+🎯 想走出困境、扭转局面，就别再独自摸索！找对方向、用对方法，才能真正实现持续向好！
+
+📢 打开平台点微聊联系【一对一导师】免费教你看懂趋势、规划资金、把控节奏，手把手带你建立自己的操作体系！
+
+❓ 很多人都在问：到底有没有能够长期稳定、稳步前行的方法？
+
+💬 我的答案始终如一：没有人能永远顺风顺水，但只要做到 “亏少赢多、长期稳健”，不贪不躁，稳步前行，时间自会证明一切。
+
+📋 跳跳龙：跳跳龙走势规律公式是我们比较常见的一种公式之一它分为很多种形式出现接下来我给大家一一介绍下.
+
+🔹 1.（ABAB）这种走势规律公式其实是比较好看出来容易发现的一种，也就是一大一小一大一小循环滚龙。这种龙一般不
+
+会太长超过六局 所以在六局过后可以（选择性）砍龙。
+
+🔹 2.（AABB）这种走势规律公式也可是说是一种长龙的公式存在.这种公式出现的可能性都相对较低。最好的砍龙时机是在
+
+8局左右看走势而定。
+
+🔹 3.（AABAAB）这种走势规律公式也是小概率出现的小长龙，这种公式相对于以上两种可以说是最难跟龙或着砍龙的。因为
+
+他比较多变可能在中途会断一局，我们经常会被钟走势给误导。所以我建议遇到这种公式的新手还是先停手观望等走势正
+
+常在玩。
+
+🔹 4. 清一色长龙走势规律公式：这种长龙使我们最常见的也是很多玩家最喜欢跟最讨厌的走势。它长可长大20局之久，
+
+短也能短至四五六局。一般这种我建议顺龙，顺到死为止。尽量不要取反。很多玩家都是因为反龙反上头导致心态崩溃掉 ，最终一直走上高倍，输的血本无归。
+
+🔹 5. 对子走势规律公式：这种公式可以说是反龙跟顺龙的一种技巧。在出现长龙的时候如果遇到本局开对子那么我们可 以在接下来的一局压相反号。
+
+这种公式对龙的实用性是相对挺高的.但是这边我还是建议大家如果遇到清一色龙的时候尽 量不要运用，还是希望大家能先顺等足够长的时候在选择考虑运用。
+
+也许很多玩家会问为什么呢？小人不才只能说实战中血的教训。
+
+💭 很多时候让你陷入困境的，不是市场、不是运气，而是内心的贪婪与不甘心。赢了还想赢更多，输了急于扳回，最后心态失衡、满盘皆输。
+
+✨ 能长期站稳脚跟的人，不是没有经历过大起大落，而是懂得在起落之间守住规则；能持续获得收益的人，不是拥有过人的天赋，而是把简单的事情做到极致、坚持到底。
+
+💌 如果你还是新手小白，愿你先学风控、再谈盈利，少走弯路；一生顺水||一生坦途 
+
+📌 如果你努力许久却收效甚微，不妨回头看看，是不是急功近利、失了本心；
+
+💪 如果你也曾因贪念和不甘吃过亏、上过当，别气馁，从现在做起，严守纪律、稳住心态，一切都还来得及。
+
+💡 真正能帮你走向成功的，从来不是什么 “独门秘籍”，而是刻在心里的纪律、稳如磐石的心态，和日复一日的坚持。
+
+![](https://i.ibb.co/Q7RVC6bz/2.jpg)
+
+📰 更新时间：2026/10/10 20261010074640 (UTC+8)    AI Builders・今日热点： 
+-
+### 教育部印发科学教育领航行动方案秋季学期实施
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E8%BF%9E%E7%8E%AF%E5%A4%BA%E5%AE%9D3%E5%85%B3%E5%8D%81%E5%85%AD%E4%B8%AA%E9%BB%84%E5%AE%9D%E7%9F%B3~b531%E5%A5%8Ccc~~9%E7%BD%91%E9%A1%B5%E7%89%88%E5%85%A5%E5%8F%A3.md?/438
+
+### 《智能网联汽车自动驾驶安全要求》国标正式发布
+| 来源：https://github.com/blakerenee4184/jptqf/commit/b1daa5ffb3d39658417f26680b8e4b627b8937c9?/559
+
+### 央行开展 5000 亿元逆回购保障流动性合理充裕
+| 来源：https://github.com/blakerenee4184/jptqf/commit/3f652dbf22b188bacf65f3d7522982da056c74f0
+
+### 我国在海南发射场成功发射 23 颗低轨互联网卫星
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%99%BE%E5%AE%B6%E4%BA%867%E5%8F%A3%E5%85%AC%E5%BC%8F~33258%E5%A5%8Ccc~~%E7%90%83%E6%8E%A2%E4%BD%93%E8%82%B2.md
+
+### 《黄岩岛国家级自然保护区管理办法》正式施行
+| 来源：https://github.com/blakerenee4184/jptqf/commit/da6e9c72cbdd1db1c93f91c0789825ce947eb6e3
+
+### 退役军人就业创业促进条例 8 月 1 日起落地执行
+| 来源：https://github.com/blakerenee4184/jptqf/commit/6b4c51bbfb414a000e46b9917ed55d85516ed894?/696
+
+### 国家三部门调拨 1.1 万件物资支援东北洪涝灾区
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81Jdb%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%88%86%E5%88%86%E8%A7%84%E5%BE%8B~22468%E5%A5%8Ccc~~1122%E5%9C%A8%E7%BA%BF%E6%B3%A8%E5%86%8C.md?/227
+
+### 俄罗斯签署首部全面监管数字货币流通法律
+| 来源：https://github.com/blakerenee4184/jptqf/commit/88091ff8df4c06787f0b6db111392f36c4531ce0?/113
+
+### 日本发布 2026 版防卫白皮书加速推进军事调整
+| 来源：https://github.com/blakerenee4184/jptqf/commit/9ed63d92060014b64fede65cf579de0839fbad1c
+
+### 欧盟内政部长会议强化边境管控打击非法移民
+| 来源：https://github.com/blakerenee4184/jptqf/commit/15fcbdc747860b404af7dc685ea61f065c382fb1?/497
+
+### 瑙鲁英文国名变更中文名称保持不变
+| 来源：https://github.com/blakerenee4184/jptqf/commit/09549dcb1277cb05ca848e1800661cb6bee99647
+
+### 我国出台新政支持县域商业体系建设升级
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81CQ9%E5%86%B0%E9%9B%AA%E5%A5%B3%E7%8E%8B%E7%94%B5%E5%AD%90%E7%88%86%E5%88%8652%E4%B8%87%E8%A7%86%E9%A2%91~63862%E5%A5%8Ccc~~Bsports%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md
+
+### 住建部发布城市更新行动最新技术导则
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81CQ9%E5%86%B0%E9%9B%AA%E5%A5%B3%E7%8E%8B%E7%94%B5%E5%AD%90%E7%88%86%E5%88%8652%E4%B8%87%E8%A7%86%E9%A2%91~63862%E5%A5%8Ccc~~Bsports%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md?/634
+
+### 医保目录调整工作启动新增罕见病用药申报
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81bb%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%90%88%E6%B3%95%E5%90%97~621b%E5%A5%8Ccc~~%E4%B9%90%E5%8A%A8%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md
+
+### 税务总局推出 12 项便民缴费服务新举措
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81bb%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%90%88%E6%B3%95%E5%90%97~621b%E5%A5%8Ccc~~%E4%B9%90%E5%8A%A8%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md?/509
+
+### 市场监管总局发布网络交易监管新规
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81pg%E5%AE%98%E7%BD%91%E6%9C%80%E6%96%B0%E7%BD%91%E7%AB%99%E5%85%A5%E5%8F%A3~22468%E5%A5%8Ccc~~%E5%AE%9D%E9%A9%AC%E4%BD%93%E8%82%B2.md
+
+### 农业农村部部署秋季农作物病虫害防控工作
+| 来源：https://github.com/blakerenee4184/jptqf/commit/ea00dbdc8c0bced8b0b57a2fe95d33e96c04c2c5
+
+### 交通运输部优化跨省大件运输审批流程
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E8%B6%B3%E7%90%83%E6%BB%9A%E7%90%83app%E6%9C%89%E5%93%AA%E4%BA%9B~82785%E5%A5%8Ccc~~%E5%A4%A9%E5%A4%A9%E6%B8%B8%E6%88%8F.md
+
+### 生态环境部发布碳排放核算最新标准
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E8%B6%B3%E7%90%83%E6%BB%9A%E7%90%83app%E6%9C%89%E5%93%AA%E4%BA%9B~82785%E5%A5%8Ccc~~%E5%A4%A9%E5%A4%A9%E6%B8%B8%E6%88%8F.md?/288
+
+### 应急管理部修订生产安全事故应急条例
+| 来源：https://github.com/blakerenee4184/jptqf/commit/b3302071a6b995a35f9839d2c13f61768f7d93b2?/270
+
+### 全国人大常委会启动乡村振兴促进法执法检查
+| 来源：https://github.com/blakerenee4184/jptqf/commit/46a3ab221fdcd69c579308087c375d60bb7e0eec
+
+### 最高法发布涉数字经济司法保护典型案例
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%87%91%E6%B2%99990%E7%99%BB%E5%BD%95%E4%B8%AD%E5%BF%83~k669%E5%A5%8Capp~~%E7%89%9B%E5%AE%9D%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 最高检出台公益诉讼检察工作指导意见
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%87%91%E6%B2%99990%E7%99%BB%E5%BD%95%E4%B8%AD%E5%BF%83~k669%E5%A5%8Capp~~%E7%89%9B%E5%AE%9D%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/466
+
+### 财政部加大对中西部地区转移支付力度
+| 来源：https://github.com/blakerenee4184/jptqf/commit/9663925262e01c9101c253d9d8308a4eff42ee6b?/462
+
+### 人社部发布新职业技能培训补贴标准
+| 来源：https://github.com/blakerenee4184/jptqf/commit/345c5c1399a1feb5c1a352a2ae73def76b19420f
+
+### 文旅部出台乡村旅游高质量发展扶持政策
+| 来源：https://github.com/blakerenee4184/jptqf/commit/6457ac143d593ba21a1bc181cd3490b3aa65a3b9?/321
+
+### 体育总局发布全民健身场地设施建设规划
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81jdb%E6%B8%B8%E6%88%8F%E7%88%86%E5%88%86%E5%A4%A7%E5%A5%96%E8%A7%86%E9%A2%91~b554%E5%A5%8Ccc~~HG59%E4%BD%93%E8%82%B2.md?/763
+
+### 林草局推进国家公园体系建设扩面提质
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81Jdb%E7%94%B5%E5%AD%90%E9%A3%9E%E9%B8%9F%E6%B4%BE%E5%AF%B9%E6%9C%80%E7%AE%80%E5%8D%95~33258%E5%A5%8Ccc~~hg888%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 水利部启动新一轮中小河流治理工程
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81Jdb%E7%94%B5%E5%AD%90%E9%A3%9E%E9%B8%9F%E6%B4%BE%E5%AF%B9%E6%9C%80%E7%AE%80%E5%8D%95~33258%E5%A5%8Ccc~~hg888%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/385
+
+### 工信部印发工业互联网创新发展三年行动计划
+| 来源：https://github.com/blakerenee4184/jptqf/commit/1a15d620d32b87eacd0836d87af1e63cad8f1ded?/729
+
+### 捷龙三号火箭海上发射 AI 双星任务圆满成功
+| 来源：https://github.com/blakerenee4184/jptqf/commit/e122de98b1c500b2c5bbd93d4344639aa6e9acab
+
+### 我国天文台发现高能宇宙粒子加速新证据
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81Jdb%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E8%B5%A2%E9%92%B1~8274%E5%A5%8Ccc~~%E4%BA%9A%E5%A8%B1%E4%BD%93%E8%82%B2.md
+
+### 华龙一号核电机组在华南投入商业运行
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81PG%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%BC%80%E5%8F%91~b531%E5%A5%8Ccc~~%E5%BE%97%E7%90%83%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/167
+
+### 古甲虫化石研究揭示萤火虫发光演化路径
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E7%88%86%E5%88%86%2067%E4%B8%87%E8%A7%86%E9%A2%91~b554%E5%A5%8Ccc~~8868%E4%BD%93%E8%82%B2%E5%85%A5%E5%8F%A3.md
+
+### AI 台风路径预测系统准确率提升至 92%
+| 来源：https://github.com/blakerenee4184/jptqf/commit/b531a3a28188d49302ea017e414ac6387a5d2c91
+
+### SpaceX 宣布 AI 基础设施全部采用英伟达芯片
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E4%B8%8D%E6%9C%BD%E6%83%85%E7%BC%986%E5%85%83%E7%88%8670%E4%B8%87~8274%E5%A5%8Ccc~~hg2020%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md
+
+### 美国白宫拟对先进 AI 模型评估框架保密
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%EF%BD%90%EF%BD%87%E5%B9%B3%E5%8F%B0~s9858%E5%A5%8Ccc~~%E4%BA%9A%E5%AF%8C%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md?/534
+
+### SpaceX 火箭残骸预计将于近日撞击月球表面
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8FPG~c493%E5%A5%8Ccc~~TVT%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md
+
+### 我国最大纯电驱深海海缆敷设船顺利下水
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8FPG~c493%E5%A5%8Ccc~~TVT%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md?/954
+
+### 全球首款商用无人驾驶航空器投入试运行
+| 来源：https://github.com/blakerenee4184/jptqf/commit/e93768034be4bb0b9d0a33158652a720d07336eb?/580
+
+### 我国成功发射两颗高光谱遥感卫星
+| 来源：https://github.com/blakerenee4184/jptqf/commit/ec472a0af87822c55f737d6f06a619d8209fa790
+
+### 机器人职业实训基地在深圳建成投用
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81pg%E7%A6%8F%E8%BF%90%E8%B1%A1%E8%B4%A2%E7%A5%9E%E7%88%86%E5%88%86%E8%A7%86%E9%A2%91~82785%E5%A5%8Ccc~~%E5%A4%A9%E6%88%90%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 敦煌莫高窟启用智能监测系统守护壁画
+| 来源：https://github.com/blakerenee4184/jptqf/commit/ad84e2e457a67b857d1e2f9470c7a827b746cf91
+
+### 量子计算云平台向全社会开放共享算力
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81pg%E9%87%91%E9%92%B1%E5%85%8D%E5%A4%BA%E5%AE%9D%E6%9C%80%E7%AE%80%E5%8D%95%E4%B8%89%E4%B8%AA%E6%AD%A5%E9%AA%A4~714b%E5%A5%8Ccc~~%E5%AE%89%E5%8D%9A%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md
+
+### 国产大模型多语言能力测评取得领先
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81pg%E9%87%91%E9%92%B1%E5%85%8D%E5%A4%BA%E5%AE%9D%E6%9C%80%E7%AE%80%E5%8D%95%E4%B8%89%E4%B8%AA%E6%AD%A5%E9%AA%A4~714b%E5%A5%8Ccc~~%E5%AE%89%E5%8D%9A%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md?/263
+
+### 6G 试验网完成关键技术验证测试
+| 来源：https://github.com/blakerenee4184/jptqf/commit/ca6bb531f28e8aecc5152971552de831198d1d79?/104
+
+### 柔性电子材料量产线在江苏正式投产
+| 来源：https://github.com/blakerenee4184/jptqf/commit/687e89337b39f7d93d403a9f926e0d6d2dbfbcea
+
+### 新型储能电池能量密度突破 500 瓦时每千克
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%88%B1%E5%B0%94%E5%85%B0%E7%B2%BE%E7%81%B5%E5%AE%88%E6%8A%A4%E7%88%86%E5%88%86~1472%E5%A5%8Ccc~~hg16%E6%B3%A8%E5%86%8C%E7%99%BB%E5%85%A5.md
+
+### 深海探测装备 “奋斗者” 号完成马里亚纳海沟科考
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%88%B1%E5%B0%94%E5%85%B0%E7%B2%BE%E7%81%B5%E5%AE%88%E6%8A%A4%E7%88%86%E5%88%86~1472%E5%A5%8Ccc~~hg16%E6%B3%A8%E5%86%8C%E7%99%BB%E5%85%A5.md?/485
+
+### 国产光刻机核心部件实现自主可控
+| 来源：https://github.com/blakerenee4184/jptqf/commit/a7a95cad32a7ec14ff00477dbd9844057e0b6b37?/995
+
+### 全球首个碳捕集利用一体化项目投产
+| 来源：https://github.com/blakerenee4184/jptqf/commit/3ce86c00d2c211bc9a95d6f38dfa2d0c375b364a
+
+### 智能电网调度系统升级完成效率提升三成
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d795cd0dba517a8cc0417c1b031d11a4152dd78c?/004
+
+### 农业无人机精准作业技术实现规模化应用
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81pg%E7%9A%84%E8%97%8F%E5%88%86%E6%B8%B8%E6%88%8F~w83%E5%A5%8Ccc~~%E7%90%83%E7%8E%8B%E4%BC%9A%E4%BD%93%E8%82%B2.md?/765
+
+### 我国科学家破译水稻高产抗逆关键基因
+| 来源：https://github.com/blakerenee4184/jptqf/commit/9c99736489bbff5b8b59fb6c683fcd7debb5a12d?/115
+
+### 火星探测器最新影像数据完成全球共享
+| 来源：https://github.com/blakerenee4184/jptqf/commit/865aa4723efcaf14799f1133168ce560638c92c6
+
+### 北斗三号短报文服务新增海外应用场景
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%EF%BD%90%EF%BD%87%E8%B5%8F%E9%87%91%E5%A5%B3%E7%8E%8B%E6%A8%A1%E6%8B%9F%E5%99%A8%E8%AF%95%E7%8E%A9%E7%89%88~s5766%E5%A5%8Ccc~~%E6%98%87%E5%BE%97%E6%BA%90%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md
+
+### 国产操作系统市场份额首次突破 15%
+| 来源：https://github.com/blakerenee4184/jptqf/commit/5099e31ec0c90cb98d36f6de8df0c55cd2bfc871?/249
+
+### 脑机接口临床试验取得阶段性进展
+| 来源：https://github.com/blakerenee4184/jptqf/commit/9d8fd745881a1984f24d647947e9ebc78bf41c68
+
+### 新型显示技术 Micro LED 良率提升至 95%
+| 来源：https://github.com/blakerenee4184/jptqf/commit/0668f6b6c0c38d090a33de604fa79dec952011aa?/041
+
+### 太阳能转化效率新纪录达到 33.2%
+| 来源：https://github.com/blakerenee4184/jptqf/commit/0fd990bf6361889bc2ad1ecaa8fcce8e2fafea66
+
+### 上半年我国服务进出口总额同比增长 8.3%
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%A4%96%E5%9B%B4%E4%B9%B0%E7%90%83app%E5%8D%81%E5%A4%A7%E5%B9%B3%E5%8F%B0%E6%9C%80%E6%96%B0%E7%89%88%E6%9C%AC~1472%E5%A5%8Ccc~~%E9%9B%B7%E9%80%9F%E4%BD%93%E8%82%B2.md
+
+### 日美时隔 15 年联合干预外汇市场稳定日元
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%A4%96%E5%9B%B4%E4%B9%B0%E7%90%83app%E5%8D%81%E5%A4%A7%E5%B9%B3%E5%8F%B0%E6%9C%80%E6%96%B0%E7%89%88%E6%9C%AC~1472%E5%A5%8Ccc~~%E9%9B%B7%E9%80%9F%E4%BD%93%E8%82%B2.md?/320
+
+### 国际原油价格受地缘影响单日涨幅超 3%
+| 来源：https://github.com/blakerenee4184/jptqf/commit/86f43dfe235b3e56e0f8761a9ba9261d5e534e0a?/155
+
+### 25 个美国州起诉政府对华关税政策
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%BE%81%E9%80%94%E5%9B%BD%E9%99%85pg%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3~33258%E5%A5%8Ccc~~18%E6%96%B0%E5%88%A9%E4%BD%93%E8%82%B2%E5%85%A5%E5%8F%A3.md?/157
+
+### 世界银行报告称 AI 将推动发展中国家经济增长
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E8%B6%B3%E7%90%83%E4%B8%96%E7%95%8C%E6%9D%AF%E5%A4%96%E5%9B%B4%E8%B5%9B~b554%E5%A5%8Ccc~~%E6%97%BA%E6%97%BA%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md
+
+### 国内航线燃油附加费再次下调
+| 来源：https://github.com/blakerenee4184/jptqf/commit/26365afbb4e1e7742d9838a484ae56a5c3365c9f
+
+### 上半年全国为消费者挽回经济损失 4.47 亿元
+| 来源：https://github.com/blakerenee4184/jptqf/commit/9dcc5939768c2d73abeae69bf385013fee2ca4f9?/669
+
+### 上半年居民消费价格指数保持温和上涨
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d70ea3ef331ede1011634a88a3811405ae01a2da
+
+### 制造业采购经理人指数连续三月处于扩张区间
+| 来源：https://github.com/blakerenee4184/jptqf/commit/00e0820a28d66e8267837843df3b4ac98680b6d4?/755
+
+### 房地产市场优化政策落地城市持续扩大
+| 来源：https://github.com/blakerenee4184/jptqf/commit/a83de93eefbb19fe5aed873cd75c413c3885a136
+
+### 人民币对美元汇率保持双向波动弹性增强
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E8%B5%8F%E9%87%91%E5%A5%B3%E7%8E%8B%E7%88%86%E5%88%86%2031%E4%B8%87%E8%A7%86%E9%A2%91~76d%E5%A5%8Cme~~%E8%B4%9D%E5%8D%9A%E4%BD%93%E8%82%B2.md
+
+### 数字人民币跨境支付试点范围扩大
+| 来源：https://github.com/blakerenee4184/jptqf/commit/85366247a9c6e026c534f5a9b3413b31d9033835?/156
+
+### 跨境电商进出口规模连续五年保持增长
+| 来源：https://github.com/blakerenee4184/jptqf/commit/69824e748c432a3717c5619f0d6c768f865a4bf9?/390
+
+### 银行结构性存款产品监管新规正式实施
+| 来源：https://github.com/blakerenee4184/jptqf/commit/b34ab4e943611878369872298196dacdf984bf23
+
+### 绿色债券发行规模创历史同期新高
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81Jdb%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%8F%98%E8%84%B8%EF%BC%92~uc5%E5%A5%8Cme~~%E7%BA%A2%E7%89%9B%E4%BD%93%E8%82%B2.md
+
+### 资本市场注册制改革配套规则持续完善
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81Jdb%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%8F%98%E8%84%B8%EF%BC%92~uc5%E5%A5%8Cme~~%E7%BA%A2%E7%89%9B%E4%BD%93%E8%82%B2.md?/287
+
+### 中小企业融资综合成本较去年同期下降
+| 来源：https://github.com/blakerenee4184/jptqf/commit/585ff11d64b35756180a80c058576a5cbbace76d?/811
+
+### 海南自贸港跨境服务贸易负面清单再缩减
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E4%B8%80%E5%8D%83%E6%9C%AC%E9%87%91%E5%81%9A12%E6%9C%9F%E5%80%8D%E6%8A%95%E9%80%92%E8%BF%9B%E5%80%8D%E6%8A%95~714b%E5%A5%8Ccc~~HG1717%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/392
+
+### 中欧班列累计开行数量突破十万列
+| 来源：https://github.com/blakerenee4184/jptqf/commit/fed6c6953ab21bfddfc12c19a15969ae0d7ba2ef?/774
+
+### 金砖国家新开发银行新增成员国获批
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d2680a8700a2f8a967217958d777ce18e1a0ef0b
+
+### 全球粮食价格指数连续四个月回落
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81pg%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%9C%A8%E7%BA%BF%E7%8E%A9~s9858%E5%A5%8Ccc~~%E4%B9%90%E5%A4%A9%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 新能源汽车出口量同比增长超四成
+| 来源：https://github.com/blakerenee4184/jptqf/commit/1beaf94c31b0aeafbb5bb410cc36c382a09c76e7
+
+### 光伏产品海外市场份额保持全球领先
+| 来源：https://github.com/blakerenee4184/jptqf/commit/103c4401a8730935bc1ec84253e3915096378e61?/802
+
+### 铁矿石价格波动加剧市场监管加强
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81AG%E5%92%8Cbg%E9%82%A3%E4%B8%AA%E5%B9%B3%E5%8F%B0%E6%9B%B4%E5%A4%A7~714b%E5%A5%8Ccc~~%E5%AF%8C%E6%98%93%E5%A0%82%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/873
+
+### 消费电子市场复苏态势逐步显现
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E7%88%86%E5%88%86%2038%E4%B8%87%E8%A7%86%E9%A2%91~k386%E5%A5%8Capp~~1122%E5%9C%A8%E7%BA%BF%E6%B3%A8%E5%86%8C.md
+
+### 跨境服务贸易负面清单管理模式全面推行
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E7%88%86%E5%88%86%2038%E4%B8%87%E8%A7%86%E9%A2%91~k386%E5%A5%8Capp~~1122%E5%9C%A8%E7%BA%BF%E6%B3%A8%E5%86%8C.md?/608
+
+### 农业保险覆盖面扩大赔付标准提高
+| 来源：https://github.com/blakerenee4184/jptqf/commit/1edda93a00d8174fcfbfbe57644a7a7275a1355f?/233
+
+### 地方政府专项债券发行进度加快
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E6%A3%AE%E6%9E%97%E8%88%9E%E4%BC%9A%E7%88%86%E5%88%8636%E5%80%8D%E8%A7%86%E9%A2%91~c493%E5%A5%8Ccc~~M88%E4%BD%93%E8%82%B2.md?/734
+
+### 普惠小微贷款余额突破三十万亿元
+| 来源：https://github.com/blakerenee4184/jptqf/commit/e09aae7a14135635afec2e98f3cffc5be1149a6d?/714
+
+### 数字经济核心产业增加值占比持续提升
+| 来源：https://github.com/blakerenee4184/jptqf/commit/fe415462c5e0d2d1b422209deed9448d810b53de
+
+### 韩国宣布极端高温进入国家灾难状态
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81CQ9%E7%81%AB%E7%83%A7%E8%BF%9E%E7%8E%AF%E8%88%B9%E5%A4%A7%E5%A5%96%E8%A7%86%E9%A2%91~a248%E5%A5%8Ccc~~678%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md
+
+### 欧洲多国遭遇持续高温干旱影响民生
+| 来源：https://github.com/blakerenee4184/jptqf/commit/10ff62fda066ca1a5f7851a5c9e8bf734950d0ae
+
+### 以色列称哈马斯未缴械不会撤出加沙阵地
+| 来源：https://github.com/blakerenee4184/jptqf/commit/45d234dd6c4f0e733d2731ec267f9ddcf6e15b2e?/048
+
+### 也门胡塞武装承认袭击红海商船
+| 来源：https://github.com/blakerenee4184/jptqf/commit/25bcc1a7998c3fbde0fabf0d39f507af10bd61ad
+
+### 黎巴嫩谴责以色列违反停火协议十余次
+| 来源：https://github.com/blakerenee4184/jptqf/commit/2a79e4f8815cb354f2f0ad38cfdbee5f8ad5d492?/699
+
+### 巴西大选选情升温外交分歧影响竞选态势
+| 来源：https://github.com/blakerenee4184/jptqf/commit/8f08d0141a42a462edb10a07f040346ee138ddd7
+
+### 印度在海德拉巴主办金砖国家反腐败会议
+| 来源：https://github.com/blakerenee4184/jptqf/commit/65f395d0d3b44fe18c7df438fad343e60727d8e0?/911
+
+### 澳大利亚完成新闻议价规则立法
+| 来源：https://github.com/blakerenee4184/jptqf/commit/76f3d397da1d7160fd39850f2caedeeb83a96105
+
+### 智利新政府宣布调整对华贸易合作策略
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%A3%9E%E9%B8%9F%E6%B4%BE%E5%AF%B9%E7%88%86%E5%A5%96130%E5%80%8D%E8%A7%86%E9%A2%91~76d%E5%A5%8Cme~~BT%E7%BD%91%E9%A1%B5%E7%89%88%E5%85%A5%E5%8F%A3.md
+
+### 德国推出能源转型新方案应对供应压力
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%A3%9E%E9%B8%9F%E6%B4%BE%E5%AF%B9%E7%88%86%E5%A5%96130%E5%80%8D%E8%A7%86%E9%A2%91~76d%E5%A5%8Cme~~BT%E7%BD%91%E9%A1%B5%E7%89%88%E5%85%A5%E5%8F%A3.md?/142
+
+### 法国议会通过移民管控从严法案
+| 来源：https://github.com/blakerenee4184/jptqf/commit/94196b18ade74a4429d061bceff127f5c66d3f7f?/805
+
+### 英国通胀率回落至近一年低位
+| 来源：https://github.com/blakerenee4184/jptqf/commit/ff4531331d78d31220f7119a2ff35eef8f35caf9
+
+### 加拿大山火过火面积突破历史极值
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%BD%91%E7%BB%9CPG%E6%B8%B8%E6%88%8F%E6%9C%BA%E5%88%B6~33258%E5%A5%8Ccc~~9393%E4%BD%93%E8%82%B2%E5%85%A5%E5%8F%A3.md
+
+### 阿根廷宣布重启与国际货币基金组织谈判
+| 来源：https://github.com/blakerenee4184/jptqf/commit/7855cb80eeee993a0ab8d92b8f3425838b52b98b
+
+### 南非失业率持续攀升社会矛盾加剧
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%EF%BD%83%EF%BD%919%E5%AE%98%E7%BD%91~uc5%E5%A5%8Cme~~%E6%B5%B7%E5%BE%B7%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md
+
+### 埃及推进苏伊士运河扩建升级工程
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%EF%BD%83%EF%BD%919%E5%AE%98%E7%BD%91~uc5%E5%A5%8Cme~~%E6%B5%B7%E5%BE%B7%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md?/588
+
+### 土耳其地震灾后重建进度超预期
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81JDB%E4%BA%94%E9%BE%99%E6%8D%95%E9%B1%BC%E6%8A%80%E5%B7%A7%E5%8F%A3%E8%AF%80~35496%E5%A5%8Ccc~~%E5%8D%9A%E4%B8%87%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 印尼火山喷发影响多个航班运行
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81JDB%E4%BA%94%E9%BE%99%E6%8D%95%E9%B1%BC%E6%8A%80%E5%B7%A7%E5%8F%A3%E8%AF%80~35496%E5%A5%8Ccc~~%E5%8D%9A%E4%B8%87%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/153
+
+### 菲律宾台风灾害救援工作全面展开
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81pg%E7%94%B5%E5%AD%90%E8%89%B3%E5%90%8E%E4%B9%8B%E8%B0%9C%E7%BD%91%E7%AB%99~s5766%E5%A5%8Ccc~~hg58%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 新西兰调整对华签证政策简化流程
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81pg%E7%94%B5%E5%AD%90%E8%89%B3%E5%90%8E%E4%B9%8B%E8%B0%9C%E7%BD%91%E7%AB%99~s5766%E5%A5%8Ccc~~hg58%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/309
+
+### 联合国气候大会筹备会议在波恩举行
+| 来源：https://github.com/blakerenee4184/jptqf/commit/e0cd8a3f93afe5ab71c9dde51e64c9125d01053f?/567
+
+### 世界卫生组织发布全球流感疫情预警
+| 来源：https://github.com/blakerenee4184/jptqf/commit/6a7e6b9ebba59aa0b15d7857a6bd2a78375a015d
+
+### 国际劳工组织报告称青年就业压力上升
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%8D%81%E5%A4%A7%E8%B5%8C%E5%8D%9A%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E5%B9%B3%E5%8F%B0~26435%E5%A5%8Ccc~~333%E7%BD%91%E9%A1%B5%E7%89%88%E5%85%A5%E5%8F%A3.md
+
+### 世界粮食计划署呼吁增加非洲援助资金
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%8D%81%E5%A4%A7%E8%B5%8C%E5%8D%9A%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E5%B9%B3%E5%8F%B0~26435%E5%A5%8Ccc~~333%E7%BD%91%E9%A1%B5%E7%89%88%E5%85%A5%E5%8F%A3.md?/095
+
+### 国际原子能机构发布核安全评估报告
+| 来源：https://github.com/blakerenee4184/jptqf/commit/fc689427bf4328e67c45660f0330c83a9cc8e1d4?/419
+
+### 欧盟碳边境调节机制正式开始实施
+| 来源：https://github.com/blakerenee4184/jptqf/commit/31c265a8832f807464e5025c1cd618951ca01624
+
+### 东盟领导人特别会议聚焦区域安全合作
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81PG%E9%BA%92%E9%BA%9F%E9%80%81%E5%AE%9D%E6%B8%B8%E6%88%8F~c493%E5%A5%8Ccc~~%E4%BA%9A%E6%96%B0%E4%BD%93%E8%82%B2.md
+
+### 上合组织经贸合作协定修订工作启动
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81PG%E9%BA%92%E9%BA%9F%E9%80%81%E5%AE%9D%E6%B8%B8%E6%88%8F~c493%E5%A5%8Ccc~~%E4%BA%9A%E6%96%B0%E4%BD%93%E8%82%B2.md?/926
+
+### 非洲联盟选举产生新一届委员会主席
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E7%88%86%E5%88%86%2044%E4%B8%87~w83%E5%A5%8Ccc~~%E5%9B%9B%E5%96%9C%E4%BD%93%E8%82%B2.md?/090
+
+### 阿拉伯国家联盟谴责以色列侵犯巴勒斯坦权益
+| 来源：https://github.com/blakerenee4184/jptqf/commit/ce654114f8bffaf86746457e0a70e315ff63a549?/664
+
+### 2026 暑期档电影总票房突破 70 亿元
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81mg%E7%94%B5%E5%AD%90%E6%B8%B8%E8%89%BA%E8%AE%BA%E5%9D%9B~c496%E5%A5%8Ccc~~%E8%83%9C%E5%88%A9%E4%BD%93%E8%82%B2.md?/335
+
+### 深圳原创舞剧《咏春》在韩国成功首演
+| 来源：https://github.com/blakerenee4184/jptqf/commit/53f04c9dcf3600cd061e8f10d097db442936e861?/914
+
+### 巴黎残奥会中国体育代表团成立
+| 来源：https://github.com/blakerenee4184/jptqf/commit/4358a645b03fddc1723cb8e962962d6caf5a7dac
+
+### 中国女排世界联赛分站赛全胜收官
+| 来源：https://github.com/blakerenee4184/jptqf/commit/1d8ec86153aa1595e8944e53e8a579eace4ce5ad
+
+### 国足世预赛主场对阵沙特赛事确定
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E6%B0%B8%E5%88%A9%E5%A8%B1%E5%9C%BA%E5%9F%8E%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80304~c496%E5%A5%8Ccc~~BT%E6%B8%B8%E6%88%8F%E5%A4%A7%E5%8E%85.md
+
+### 国际足联改革商业权益分配机制引争议
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E6%BB%9A%E7%90%83%E7%9A%84%E8%AE%A9%E7%90%830.5~68848%E5%A5%8Ccc~~%E5%AE%89%E5%8D%9A%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md?/643
+
+### 网球大满贯赛事奖金总额创历史新高
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81PG%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E6%94%BB%E7%95%A5~63862%E5%A5%8Ccc~~TC%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md
+
+### 电竞项目正式纳入亚运会正式比赛项目
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81PG%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E6%94%BB%E7%95%A5~63862%E5%A5%8Ccc~~TC%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md?/988
+
+### 中国选手在世锦赛打破三项亚洲纪录
+| 来源：https://github.com/blakerenee4184/jptqf/commit/9f53ec2a65ef1db8b4c002f5df2f27ed86e259f5?/109
+
+### 北京马拉松赛事规模扩大至三万人
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81ag%E7%9C%9F%E4%BA%BA%E6%B8%B8%E6%88%8F%E7%BD%91%E5%9D%80~53983%E5%A5%8Ccc~~7M%E4%BD%93%E8%82%B2%E5%85%A5%E5%8F%A3.md?/983
+
+### 三星堆遗址新出土文物修复工作启动
+| 来源：https://github.com/blakerenee4184/jptqf/commit/4844f281810a4bb0df84af261e5b6e0d35ca1ec7?/316
+
+### 故宫博物院数字文物库新增三万件藏品
+| 来源：https://github.com/blakerenee4184/jptqf/commit/7463e5c4c10f165d02429a30feb2d09af31f27cc
+
+### 第八届中国国际电影节在上海开幕
+| 来源：https://github.com/blakerenee4184/jptqf/commit/bf613c917c5002ee1eeb487c67bd4bcede9f44d1?/330
+
+### 原创音乐作品版权保护专项行动开展
+| 来源：https://github.com/blakerenee4184/jptqf/commit/cad0ab3c89a5034b1280d1b015d9f9d3f9dbd76c?/019
+
+### 全国戏曲展演活动在多地同步举行
+| 来源：https://github.com/blakerenee4184/jptqf/commit/00c9f7ce2ff3bee5e857972aea6bf1cab7d4d56b
+
+### 国家级非遗传承人新增三百余名
+| 来源：https://github.com/blakerenee4184/jptqf/commit/270beef1c7842e23ffb25c89c6dfc1c11fb03ea2?/028
+
+### 国产动画电影海外票房突破五千万美元
+| 来源：https://github.com/blakerenee4184/jptqf/commit/393cf29bdef651a6b7f338f35285f52973921ba3?/981
+
+### 数字博物馆建设项目覆盖全国所有地市
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81mg%E8%B1%AA%E5%8D%8E%E6%91%86%E8%84%B1%E4%BA%94%E4%B8%AA%E5%85%8D%E8%B4%B9%E7%90%83~68848%E5%A5%8Ccc~~E%E6%98%9F%E4%BD%93%E8%82%B2.md?/711
+
+### 作家莫言新作《晚熟者》正式出版发行
+| 来源：https://github.com/blakerenee4184/jptqf/commit/eaf089d055e1eba685659f12113f3ce7fd045524?/850
+
+### 全国运动会筹备工作进入冲刺阶段
+| 来源：https://github.com/blakerenee4184/jptqf/commit/be0baaf13474b072ddaa9693efac7a1e89671d36
+
+### 职业足球联赛转会窗口关闭引关注
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%94%B5%E7%8E%A9%E5%9F%8Eapp%E5%AE%98%E7%BD%91~1472%E5%A5%8Ccc~~ayx%E4%BD%93%E8%82%B2.md
+
+### 羽毛球世锦赛中国队斩获三金两银
+| 来源：https://github.com/blakerenee4184/jptqf/commit/5aabecb437c5f5912efb7c3b997e99d6d0b40c14
+
+### 游泳世锦赛中国队刷新五项世界纪录
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81bb%E7%94%B5%E5%AD%90app~719b%E5%A5%8Ccc~~%E5%86%A0%E4%BA%9A%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 篮球世界杯分组抽签结果正式公布
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81bb%E7%94%B5%E5%AD%90app~719b%E5%A5%8Ccc~~%E5%86%A0%E4%BA%9A%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/351
+
+### 冬奥会场馆赛后利用方案全面实施
+| 来源：https://github.com/blakerenee4184/jptqf/commit/8b540e52f0cccd2708a7574f0f93abfb94653637?/296
+
+### 中国国际时装周展示最新设计成果
+| 来源：https://github.com/blakerenee4184/jptqf/commit/70cb1bca29d8de2e595d31f9d2f395e6382b8d6e
+
+### 古籍修复技艺传承基地在国家图书馆挂牌
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81ag%E7%9C%9F%E4%BA%BA%E5%AE%98%E6%96%B9%E7%99%BE%E7%A7%91~78584%E5%A5%8Ccc~~T8%E5%9B%BD%E9%99%85%E4%BD%93%E8%82%B2.md
+
+### 文化遗产日系列活动吸引超千万人次参与
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81ag%E7%9C%9F%E4%BA%BA%E5%AE%98%E6%96%B9%E7%99%BE%E7%A7%91~78584%E5%A5%8Ccc~~T8%E5%9B%BD%E9%99%85%E4%BD%93%E8%82%B2.md?/973
+
+### 网络视听节目精品创作扶持计划公布
+| 来源：https://github.com/blakerenee4184/jptqf/commit/e87a7b14f38144b25818edf5a0454a3e3bae07e6?/433
+
+### 传统武术赛事标准化推广工作启动
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d9ae1fe5b99222f31740ea9aad4f43acfc39d685
+
+### 国家医保药品目录新增 126 种药品
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%BD%91%E4%B8%8A%E7%9C%9F%E4%BA%BA%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%BA%BF%E4%B8%8A~k386%E5%A5%8Capp~~%E4%BA%9A%E7%BE%8E%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md
+
+### 全国流感疫苗接种工作全面启动
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E6%AC%A7%E5%86%A0%E5%8F%AF%E4%BB%A5%E4%B9%B0%E8%B6%B3%E7%90%83%E7%9A%84app~719b%E5%A5%8Ccc~~%E5%A4%A9%E5%A4%A9%E6%B8%B8%E6%88%8F%E4%BD%93%E8%82%B2.md?/723
+
+### 首个国产阿尔茨海默病新药纳入医保
+| 来源：https://github.com/blakerenee4184/jptqf/commit/9da4106310e5d10fb92c0a09a79c2d99bc87244f?/086
+
+### 基层医疗卫生机构服务能力提升工程启动
+| 来源：https://github.com/blakerenee4184/jptqf/commit/38213378fb97ed2878c37bb63141467c698eb8ff
+
+### 食品安全抽检合格率保持在 98% 以上
+| 来源：https://github.com/blakerenee4184/jptqf/commit/2658b086721bb8930fb671b4f20e852baab5f06c?/135
+
+### 全国学生营养改善计划覆盖所有县域
+| 来源：https://github.com/blakerenee4184/jptqf/commit/4183483d50ad7fe52ee9f1cb05b61433c01e1088
+
+### 职业健康保护专项行动深入开展
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%A8%81%E5%B0%BC%E6%96%AFwww432888%E5%A4%A7%E5%85%A8~b543%E5%A5%8Ccc~~kai%E4%BA%91%E4%BD%93%E8%82%B2.md
+
+### 罕见病诊疗协作网新增二十家医院
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%A8%81%E5%B0%BC%E6%96%AFwww432888%E5%A4%A7%E5%85%A8~b543%E5%A5%8Ccc~~kai%E4%BA%91%E4%BD%93%E8%82%B2.md?/964
+
+### 老年人健康管理服务覆盖率提升至 90%
+| 来源：https://github.com/blakerenee4184/jptqf/commit/f69b8d8dd4b7ef30ad382ed4299e6a4a627b6f46?/879
+
+### 青少年近视防控干预措施全面落地
+| 来源：https://github.com/blakerenee4184/jptqf/commit/a004c38d376048278525c08f48b9ef4ab3c93ae0
+
+### 高温天气劳动保护标准严格执行
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81CQ9%E7%94%B5%E5%AD%90%E7%88%86%E5%88%86%E8%A7%86%E9%A2%91%E6%AD%A6%E5%9C%A3~s5766%E5%A5%8Ccc~~%E5%AE%9D%E5%A8%81%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md
+
+### 全国公共交通票价优惠政策持续扩大
+| 来源：https://github.com/blakerenee4184/jptqf/commit/14010b6fd0e3c72617a3031095a599a0af655ca8
+
+### 保障性住房建设进度超年度预期
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81UED%E5%9C%A8%E7%BA%BF%E5%AE%98%E6%96%B9%E5%BC%80%E6%88%B7~c493%E5%A5%8Ccc~~BBV%E6%89%8B%E6%9C%BA%E7%AB%AF%E5%85%A5%E5%8F%A3.md
+
+### 老旧小区改造惠及居民超五百万户
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81UED%E5%9C%A8%E7%BA%BF%E5%AE%98%E6%96%B9%E5%BC%80%E6%88%B7~c493%E5%A5%8Ccc~~BBV%E6%89%8B%E6%9C%BA%E7%AB%AF%E5%85%A5%E5%8F%A3.md?/312
+
+### 城乡居民基础养老金标准再次提高
+| 来源：https://github.com/blakerenee4184/jptqf/commit/ff282639cc2bb293e7a3f8772c129bb7a5a57579?/040
+
+### 义务教育阶段课后服务实现全覆盖
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d1353658c893baf44dd2a3dd274b0949a6eb757b
+
+### 农村饮水安全巩固提升工程完工
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E7%88%86%E5%88%8634%E4%B8%87~k669%E5%A5%8Capp~~286%E6%B8%B8%E6%88%8F%E5%AE%98%E7%BD%91%E8%BF%9B%E5%85%A5.md
+
+### 城市垃圾分类处理率提升至 85%
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E7%88%86%E5%88%8634%E4%B8%87~k669%E5%A5%8Capp~~286%E6%B8%B8%E6%88%8F%E5%AE%98%E7%BD%91%E8%BF%9B%E5%85%A5.md?/711
+
+### 新能源汽车充电设施乡镇全覆盖
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d59d3b4cff340cabd4610078ff3129428ae73049?/267
+
+### 网络提速降费成果持续巩固深化
+| 来源：https://github.com/blakerenee4184/jptqf/commit/47f1c3a9e95a2135fb42233deb0967541f60bf49
+
+### 药品集中采购平均降幅保持在 50% 以上
+| 来源：https://github.com/blakerenee4184/jptqf/commit/81694772c74b5277f6361f4c4c75d7075810330d?/407
+
+### 医师多点执业政策进一步优化完善
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%A5%94%E9%A9%B0%E5%AE%9D%E9%A9%AC%E7%94%B5%E7%8E%A9%E5%9F%8E%E4%B8%8B%E8%BD%BD%E8%B6%85%E7%BA%A7%E9%A3%9E%E9%B8%9F~w83%E5%A5%8Ccc~~FYTBET%E4%BD%93%E8%82%B2.md?/025
+
+### 心理健康服务体系建设加快推进
+| 来源：https://github.com/blakerenee4184/jptqf/commit/24ff5a1e6d1095d2b3773181043c2b45548fce82?/586
+
+### 妇幼健康保障水平稳步提升
+| 来源：https://github.com/blakerenee4184/jptqf/commit/0d4e85cd2880bee660ccc4701b62a83fcdaf1c97
+
+### 慢性病综合防控示范区扩面升级
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81PG%E7%94%B5%E5%AD%90%E5%85%AC%E5%8F%B8%E5%AE%98%E6%96%B9~719b%E5%A5%8Ccc~~9D%E4%BD%93%E8%82%B2%E5%85%A5%E5%8F%A3.md
+
+### 院前急救服务响应时间缩短至十分钟
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81uplay%E6%89%8B%E6%9C%BA%E5%AE%A2%E6%88%B7%E7%AB%AF~c496%E5%A5%8Ccc~~%E5%A5%87%E5%BC%82%E6%9E%9C%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md?/662
+
+### 医疗异地结算范围扩大至所有统筹区
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%A4%9C%E9%86%89%E4%BD%B3%E4%BA%BA%E7%88%86%E5%88%8634%E4%B8%87%E8%A7%86%E9%A2%91~uc5%E5%A5%8Cme~~hg58%E4%BD%93%E8%82%B2.md
+
+### 食品溯源系统接入全国统一平台
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%A4%9C%E9%86%89%E4%BD%B3%E4%BA%BA%E7%88%86%E5%88%8634%E4%B8%87%E8%A7%86%E9%A2%91~uc5%E5%A5%8Cme~~hg58%E4%BD%93%E8%82%B2.md?/089
+
+### 养老服务床位数量突破九百万张
+| 来源：https://github.com/blakerenee4184/jptqf/commit/7ccd6d991f80061433ff0369ec05b944f455cc95?/911
+
+### 残疾人无障碍环境建设持续推进
+| 来源：https://github.com/blakerenee4184/jptqf/commit/4f82a381663c828b3121c7c6b56b6ee59508e66b
+
+### 全国秋粮长势总体良好丰收基础稳固
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81pg%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E6%9E%81%E9%80%9F%E8%B5%A2%E5%AE%B6%E6%80%8E%E4%B9%88%E7%8E%A9~s5766%E5%A5%8Ccc~~%E4%B8%AD%E4%B9%90%E5%BD%A9%E4%BD%93%E8%82%B2.md
+
+### 第三代杂交水稻亩产突破一千二百公斤
+| 来源：https://github.com/blakerenee4184/jptqf/commit/7fd499577ccb100e6bca75c46a05bbed5ad04c86
+
+### 长江禁渔成效显现水生生物种群恢复
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81PP%E8%B7%B3%E8%88%9E%E8%B6%B4%E7%9A%84%E7%8E%A9%E6%B3%95%E4%B8%8E%E8%A7%84%E5%88%99~24887%E5%A5%8Ccc~~%E5%8A%B2%E7%88%86%E4%BD%93%E8%82%B2.md
+
+### 黄河流域生态保护修复工程进展顺利
+| 来源：https://github.com/blakerenee4184/jptqf/commit/b8bc04a5f6f1be987018fddeeeb8568b6dcd2353
+
+### 我国新增三处国际重要湿地
+| 来源：https://github.com/blakerenee4184/jptqf/commit/4b31f477304dd1caa8da082d785e6fe4b366cb5e?/375
+
+### 三北防护林工程年度任务超额完成
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%BA%BF%E4%B8%8A%E7%94%B5%E7%8E%A9%E5%9F%8Eapp~26435%E5%A5%8Ccc~~%E6%99%BA%E6%85%A7%E4%BD%93%E8%82%B2.md?/594
+
+### 农业面源污染治理取得阶段性成效
+| 来源：https://github.com/blakerenee4184/jptqf/commit/176205b515d02b2d96419a2cce29a604a51a8841?/119
+
+### 农产品质量安全合格率稳定在 99% 以上
+| 来源：https://github.com/blakerenee4184/jptqf/commit/7027c61098a522394cb52694e5050c12e730c06a
+
+### 智慧农业示范区建成超千个
+| 来源：https://github.com/blakerenee4184/jptqf/commit/229d3c5c73efa642d237e01f8ebe1c24227dcdde
+
+### 畜禽粪污资源化利用率突破 80%
+| 来源：https://github.com/blakerenee4184/jptqf/commit/167fc56f77bcca37e0d03ea2794b481932bda7a4
+
+### 全国耕地保有量连续三年保持稳定
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d8ddaeb5ad34969ce8a46f3a757246fc2de1c8b0
+
+### 地下水超采综合治理成效显著
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E8%B5%8F%E9%87%91%E5%A4%A7%E5%AF%B9%E5%86%B3%E7%88%86%E5%88%8658%E4%B8%87%E8%A7%86%E9%A2%91~w83%E5%A5%8Ccc~~i%E5%8D%9A%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 生物多样性保护公约履约报告发布
+| 来源：https://github.com/blakerenee4184/jptqf/commit/722a4d77fb5232e27104d287f908c64fb09c1f24
+
+### 全国森林覆盖率提升至 25.8%
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81333%E6%89%8B%E6%9C%BA%E7%89%88%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3~c496%E5%A5%8Ccc~~%E5%A4%B4%E5%8F%B7%E7%8E%A9%E5%AE%B6%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 荒漠化土地面积连续十五年缩减
+| 来源：https://github.com/blakerenee4184/jptqf/commit/84caa621a3e6970c1ec965ffc61705eb5a034348?/534
+
+### 化肥农药使用量连续八年负增长
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81BB%E7%94%B5%E5%AD%90%E5%8F%91%E5%A4%A7%E8%B4%A2~b531%E5%A5%8Ccc~~3344%E6%B8%B8%E6%88%8F%E5%A4%A7%E5%8E%85.md?/597
+
+### 农产品出口总额创历史新高
+| 来源：https://github.com/blakerenee4184/jptqf/commit/968a7b15073308bdff5c1870154012abd75411b3?/843
+
+### 乡村建设行动重点任务全面推进
+| 来源：https://github.com/blakerenee4184/jptqf/commit/eb87782e1ba5fa1db276b107de54ccbb4ea08c5a
+
+### 农村人居环境整治提升五年行动收官
+| 来源：https://github.com/blakerenee4184/jptqf/commit/b6ea810405d9d649190a5667f5d859b5615c0de5?/513
+
+### 新型农业经营主体数量突破三百万家
+| 来源：https://github.com/blakerenee4184/jptqf/commit/a62970a5375d9cbdc65ba2bb2f2b740c10bbce82
+
+### 国产首台套大型盾构机出口欧洲
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E6%89%8B%E6%9C%BA%E5%92%8C%E7%94%B5%E8%84%91pp~c493%E5%A5%8Ccc~~%E5%A4%A9%E6%88%90%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 新能源汽车产销量连续八个月创新高
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E6%89%8B%E6%9C%BA%E5%92%8C%E7%94%B5%E8%84%91pp~c493%E5%A5%8Ccc~~%E5%A4%A9%E6%88%90%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/378
+
+### 光伏组件全球市场份额保持八成以上
+| 来源：https://github.com/blakerenee4184/jptqf/commit/7ebb7ade632bd377cda6e0e69e39a0c4c075695b?/121
+
+### 船舶工业手持订单量稳居世界第一
+| 来源：https://github.com/blakerenee4184/jptqf/commit/ff1434539aaf2bc0c57f067c1e6e2674e902dd30
+
+### 高端医疗器械国产化率提升至 65%
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81PG%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E9%AA%97%E5%B1%80%E6%98%AF%E7%9C%9F%E7%9A%84%E5%90%97~35496%E5%A5%8Ccc~~9%E5%8F%B7%E5%BD%A9%E4%BD%93%E8%82%B2.md
+
+### 工业机器人产量同比增长超三成
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81PG%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E9%AA%97%E5%B1%80%E6%98%AF%E7%9C%9F%E7%9A%84%E5%90%97~35496%E5%A5%8Ccc~~9%E5%8F%B7%E5%BD%A9%E4%BD%93%E8%82%B2.md?/930
+
+### 5G 基站累计建成开通超四百万个
+| 来源：https://github.com/blakerenee4184/jptqf/commit/3ba4386f0a55fc8ac3be86db4567810396959432?/251
+
+### 特高压输电线路工程全线贯通
+| 来源：https://github.com/blakerenee4184/jptqf/commit/0ae4d284d09cf14408a816f71e47b125428fb265
+
+### 新型储能装机规模突破八千万千瓦
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d415aad76a54139325697e59243552109a3b593b?/639
+
+### 工业增加值增速连续回升
+| 来源：https://github.com/blakerenee4184/jptqf/commit/0ce05468bdf6b931d5a4ca6d234ad0cbcfacc81b
+
+### 制造业数字化转型指数持续提升
+| 来源：https://github.com/blakerenee4184/jptqf/commit/e85c657594fa8a5d2aba51377c4296dd76d89233
+
+### 专精特新 “小巨人” 企业数量超万家
+| 来源：https://github.com/blakerenee4184/jptqf/commit/441af03876ecfd53b6e5277fdad7b8c6c5790a14?/710
+
+### 原材料工业节能降碳改造全面推进
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d17acf3d4d90f940c42eed257901499a0897deb9
+
+### 绿色建材推广应用比例达 55%
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E6%BE%B3%E9%97%A8%E6%96%B0%E8%91%A1%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99~22468%E5%A5%8Ccc~~%E4%B9%90%E7%AB%9E%E4%BD%93%E8%82%B2.md
+
+### 重大技术装备自主化水平显著提高
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E6%BE%B3%E9%97%A8%E6%96%B0%E8%91%A1%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99~22468%E5%A5%8Ccc~~%E4%B9%90%E7%AB%9E%E4%BD%93%E8%82%B2.md?/408
+
+### 工业园区循环化改造覆盖率超七成
+| 来源：https://github.com/blakerenee4184/jptqf/commit/2bb87733da9e53843e08c9941cbecef70a40a256?/263
+
+### 汽车芯片自给率提升至 30%
+| 来源：https://github.com/blakerenee4184/jptqf/commit/dbdaba2c94994bda88b764cc20e12209f6a62860
+
+### 民用航空发动机关键部件实现量产
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%BA%BB%E9%9B%80%E6%97%A0%E5%8F%8C60%E5%80%8D%E7%88%86%E5%88%86%E8%A7%86%E9%A2%91~74536%E5%A5%8Ccc~~hg222%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 海上风电装备出口规模持续扩大
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%BA%BB%E9%9B%80%E6%97%A0%E5%8F%8C60%E5%80%8D%E7%88%86%E5%88%86%E8%A7%86%E9%A2%91~74536%E5%A5%8Ccc~~hg222%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/706
+
+### 工业互联网平台连接设备超两亿台
+| 来源：https://github.com/blakerenee4184/jptqf/commit/f6bd997f4cd01730e52fabc8c012416ad6ad5801?/776
+
+### 全国铁路暑运累计发送旅客突破六亿人次
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d7932bc109f0b5754bbe62b673f26d75e0e0c306
+
+### 沪渝蓉高铁建设进度按计划推进
+| 来源：https://github.com/blakerenee4184/jptqf/commit/2dd6d4d5b2271c4d60cec1bf8a5666edf9320874?/347
+
+### 新开通高速公路里程超一千公里
+| 来源：https://github.com/blakerenee4184/jptqf/commit/43d8862763d2a0796d99bcf7330dc1e5623516cc
+
+### 港口货物吞吐量保持稳步增长
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d2238a4472fe70dfd44f6c62967d9a8c79c22a92?/580
+
+### 民航暑运航班量恢复至疫前水平
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81BG%E5%A4%A7%E6%B8%B8%E5%8E%85~c496%E5%A5%8Ccc~~286%E6%B8%B8%E6%88%8F%E5%AE%98%E7%BD%91%E8%BF%9B%E5%85%A5.md?/570
+
+### 中欧班列月度开行量创新高
+| 来源：https://github.com/blakerenee4184/jptqf/commit/6c71e11aa94e5e60ad5212c44649c63f8bb3a958?/138
+
+### 农村物流网点覆盖率达 98%
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%9C%9F%E4%BA%BA%E6%89%93%E9%B1%BC%E4%B8%8A%E4%B8%8B%E5%88%86%E8%B5%A2%E9%92%B1~63862%E5%A5%8Ccc~~35%E6%B8%B8%E6%88%8F%E5%A4%A7%E5%8E%85.md?/766
+
+### 城市轨道交通运营里程突破一万公里
+| 来源：https://github.com/blakerenee4184/jptqf/commit/dfb0ecfda3361f787f91a72c13bc138593885db1?/365
+
+### 智能交通系统试点城市扩围
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E6%96%B0%E4%BA%8C%E6%9C%80%E6%96%B0%E8%B6%B3%E7%90%83%E7%BD%91%E5%9D%80~63862%E5%A5%8Ccc~~%E6%AC%A7%E7%9A%87%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md?/371
+
+### 物流成本占 GDP 比重持续下降
+| 来源：https://github.com/blakerenee4184/jptqf/commit/5d29bf037a93081f7db2a9932596a0d76bdd033e?/307
+
+### 跨境电商综合试验区再扩二十个
+| 来源：https://github.com/blakerenee4184/jptqf/commit/6eb5f251eeef2782669675159e9de68c285af443
+
+### 内河航运通航条件持续改善
+| 来源：https://github.com/blakerenee4184/jptqf/commit/09fb9d0902a40cef931f1adf7412ddffb3abc578?/208
+
+### 新能源公交车辆占比 80%
+| 来源：https://github.com/blakerenee4184/jptqf/commit/ba66568068c4a93b0d3724b04118bf630a5acc51
+
+### 货运车辆超限超载治理成效显著
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E6%91%86%E8%84%B1%E7%88%86%E5%88%86%E8%A7%86%E9%A2%91~76d%E5%A5%8Cme~~HG1717%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md
+
+### 铁路客票电子化普及率达 100%
+| 来源：https://github.com/blakerenee4184/jptqf/commit/4f0a6de84e4bdc569fb5bb77ab71961b3eb97323
+
+### 国际航空货运航线新增三十条
+| 来源：https://github.com/blakerenee4184/jptqf/commit/101e83df4f9e085f92c320be441d11fa976203e1?/670
+
+### 智慧港口建设取得阶段性成果
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81mg%E5%A4%A7%E5%A5%96%E8%A7%86%E9%A2%9130%E4%B8%87~82785%E5%A5%8Ccc~~%E6%82%A6%E7%9B%88%E4%BD%93%E8%82%B2.md?/075
+
+### 综合货运枢纽补链强链工程启动
+| 来源：https://github.com/blakerenee4184/jptqf/commit/f5e1e4cfa7d3c73d2684fb18c402564ac6ca93df?/805
+
+### 冷链物流基础设施建设加快
+| 来源：https://github.com/blakerenee4184/jptqf/commit/53e3c249f236eaa3f7056ea56179e928b91aa0b8
+
+### 交通固定资产投资保持合理增长
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%A4%A7%E5%B0%8F%E5%8D%95%E5%8F%8C%E5%B9%B3%E5%8F%B0%E4%B8%8B%E8%BD%BD~uc5%E5%A5%8Cme~~hg888%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 全国扫黑除恶专项斗争常态化推进
+| 来源：https://github.com/blakerenee4184/jptqf/commit/9bba9c03883fbe2a8f241832d7de234b23e7837e
+
+### 反诈 APP 累计预警劝阻超千万人次
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%BA%84%E9%97%B2%E7%9A%8480%%E8%B5%A2%E6%B3%95%E5%9B%BE%E8%A7%A3~33258%E5%A5%8Ccc~~%E5%B1%B1%E7%8C%AB%E4%BD%93%E8%82%B2.md
+
+### 网络暴力治理专项行动取得积极进展
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%BA%84%E9%97%B2%E7%9A%8480%%E8%B5%A2%E6%B3%95%E5%9B%BE%E8%A7%A3~33258%E5%A5%8Ccc~~%E5%B1%B1%E7%8C%AB%E4%BD%93%E8%82%B2.md?/607
+
+### 个人信息保护合规检查全面开展
+| 来源：https://github.com/blakerenee4184/jptqf/commit/92beb6ccfd2f57f4b917baa18460139bc3fb51ee?/006
+
+### 未成年人网络保护条例实施细则出台
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81PG%E7%94%B5%E5%AD%90%E7%88%86%E5%A4%A7%E5%A5%96%E8%A7%86%E9%A2%91%E5%98%BB%E6%B8%B8%E8%AE%B0~74536%E5%A5%8Ccc~~%E6%96%B02%E4%BD%93%E8%82%B2.md?/822
+
+### 知识产权保护中心覆盖所有副省级城市
+| 来源：https://github.com/blakerenee4184/jptqf/commit/997eec995a03d4c6112bacd4b08ca12343a09b54?/083
+
+### 专利质押融资总额突破五千亿元
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E8%8B%B1%E8%B6%85%E4%B9%B0%E8%B6%B3%E7%90%83%E6%80%8E%E4%B9%88%E4%B9%B0~8274%E5%A5%8Ccc~~%E4%B9%90%E5%A4%A9%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md?/568
+
+### 全国信用信息共享平台功能升级
+| 来源：https://github.com/blakerenee4184/jptqf/commit/ba1171c6b9f5e1435a33d607f1221d79878e0da8?/463
+
+### 失信联合惩戒制度持续完善
+| 来源：https://github.com/blakerenee4184/jptqf/commit/47be07478bddc19b78fd93c45de704ca7b3b3d3c
+
+### 志愿服务注册人数突破三亿人
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81bg%E7%9C%9F%E4%BA%BA%E5%A8%B1%E4%B9%90%E9%93%BE%E6%8E%A5%E5%9C%A8%E7%BA%BF%E8%A7%82%E7%9C%8B~69378%E5%A5%8Ccc~~hg222%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 文明城市创建工作测评结果公布
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81bg%E7%9C%9F%E4%BA%BA%E5%A8%B1%E4%B9%90%E9%93%BE%E6%8E%A5%E5%9C%A8%E7%BA%BF%E8%A7%82%E7%9C%8B~69378%E5%A5%8Ccc~~hg222%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/010
+
+### 民族团结进步示范区建设成效显著
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d905a48062f9c4c61057116d6d0dfbd6da76f265?/506
+
+### 宗教活动场所规范化管理水平提升
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E6%BE%B3%E9%97%A8%E6%B0%B8%E5%88%A9%E5%AE%98%E7%BD%91%E6%AD%A3%E7%BD%91~621b%E5%A5%8Ccc~~%E4%B9%90%E7%AB%9E%E4%BD%93%E8%82%B2.md?/219
+
+### 港澳台青年实习就业创业计划扩大
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d540ff367ad82830c49fdaa214f8dce113b20967?/263
+
+### 海外侨胞权益保障机制不断健全
+| 来源：https://github.com/blakerenee4184/jptqf/commit/0192a60c676e2a02f272045778f0345a07bdf70d
+
+### 退役军人安置政策落实到位
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81ag%E7%9C%9F%E4%BA%BA%E6%B8%B8%E6%88%8F%E8%BD%AF%E4%BB%B6~35496%E5%A5%8Ccc~~K%E4%BD%93%E8%82%B2.md
+
+### 残疾人就业保障金减免政策优化
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d943580ae2652ef33caf46aa756ee4896200b131
+
+### 妇女儿童权益保障法律法规完善
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81BG%E7%9C%9F%E4%BA%BA%E4%BA%9A%E6%B4%B2%E6%9C%80%E5%A4%A7%E5%B9%B3%E5%8F%B0~s9858%E5%A5%8Ccc~~%E5%86%A0%E4%BA%9A%E4%BD%93%E8%82%B2.md
+
+### 老年人权益保障专项督查启动
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E4%B8%8D%E6%9C%BD%E6%83%85%E7%BC%9844%E4%B8%80%E6%8A%8A%E4%BA%94%E6%BB%B4%E8%A1%8044%E4%B8%87~w83%E5%A5%8Ccc~~%E6%B2%99%E9%BE%99%E4%BC%9A%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md?/879
+
+### 农民工工资支付监管平台全覆盖
+| 来源：https://github.com/blakerenee4184/jptqf/commit/1e76b9e277a8f2c0cbfe76eccfeefd16c0027350?/001
+
+### 集体协商制度覆盖面持续扩大
+| 来源：https://github.com/blakerenee4184/jptqf/commit/2d2666e862b900277b77de4149da79aef3d58e90
+
+### 劳动争议调解仲裁效率提升
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81CQ9%E7%81%AB%E7%83%A7%E8%BF%9E%E7%8E%AF%E8%88%B9%EF%BC%92%E6%80%8E%E4%B9%88%E7%8E%A9~uc5%E5%A5%8Cme~~ayx%E4%BD%93%E8%82%B2.md
+
+### 安全生产专项整治三年行动收官
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81CQ9%E7%81%AB%E7%83%A7%E8%BF%9E%E7%8E%AF%E8%88%B9%EF%BC%92%E6%80%8E%E4%B9%88%E7%8E%A9~uc5%E5%A5%8Cme~~ayx%E4%BD%93%E8%82%B2.md?/634
+
+### 消防救援队伍实战化演练常态化
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E4%B9%B0%E7%90%83APP%E4%B8%96%E7%95%8C%E6%9D%AF%E7%BD%91%E4%B8%8A%E6%8A%BC%E6%B3%A8~35496%E5%A5%8Ccc~~%E5%86%A0%E4%BA%9A%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 防汛抗旱物资储备充足调配及时
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E4%B9%B0%E7%90%83APP%E4%B8%96%E7%95%8C%E6%9D%AF%E7%BD%91%E4%B8%8A%E6%8A%BC%E6%B3%A8~35496%E5%A5%8Ccc~~%E5%86%A0%E4%BA%9A%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/627
+
+### 地震预警系统覆盖范围进一步扩大
+| 来源：https://github.com/blakerenee4184/jptqf/commit/74829bc040759797fc263886ef49544091b3b095?/324
+
+### 地质灾害隐患排查治理全面完成
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81pg%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E4%B8%AD%E5%A4%A7%E5%A5%96%E5%9B%BE%E7%89%87~1472%E5%A5%8Ccc~~KK%E4%BD%93%E8%82%B2.md?/149
+
+### 极端天气应急预案体系不断完善
+| 来源：https://github.com/blakerenee4184/jptqf/commit/8f9286e0521dfbd423f2267a518069c8bfe9a750?/869
+
+### 应急救援队伍专业化水平提升
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E5%9B%BE%E7%89%87%E6%90%9E%E7%AC%91~1472%E5%A5%8Ccc~~%E6%B5%A9%E7%80%9A%E4%BD%93%E8%82%B2.md?/575
+
+### 灾后恢复重建工作有力有序推进
+| 来源：https://github.com/blakerenee4184/jptqf/commit/33a9cbf95cf7a69e909aa20aa9a27d3b4f5b4e7b?/962
+
+### 数字政府建设整体效能持续提升
+| 来源：https://github.com/blakerenee4184/jptqf/commit/393d5ac6580c98bdb2f396d3562285a7ded7f31c
+
+### 政务服务事项网上可办率达 95%
+| 来源：https://github.com/blakerenee4184/jptqf/commit/fce49b58c79c35c50ead67845124c0daa73233f7?/510
+
+### 跨省通办事项清单再新增五十项
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E4%B8%8D%E6%9C%BD%E7%9A%84%E6%83%85%E7%BC%986%E5%85%83%E7%88%866%E4%B8%876~74536%E5%A5%8Ccc~~8%E5%8D%9A%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md?/118
+
+### 营商环境评价指标体系优化完善
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d491dbc7f469146b21a3577d99ee15cd6b6c9fe7?/541
+
+### 市场主体总量突破两亿户
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81Jdb%E5%8F%98%E8%84%B8%E7%88%86%E5%88%86~c493%E5%A5%8Ccc~~%E6%98%8E%E5%8D%9A%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/368
+
+### 行政审批事项削减比例超七成
+| 来源：https://github.com/blakerenee4184/jptqf/commit/467bac8f2c58af3390132c74bb8e596914f636ee?/796
+
+### 公平竞争审查制度全面落地执行
+| 来源：https://github.com/blakerenee4184/jptqf/commit/171762e28407aa9134bd0a89f978e6f50ea03a6d
+
+### 反垄断和反不正当竞争执法加强
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%86%B0%E7%90%83%E7%AA%81%E7%A0%B4%E8%AF%95%E7%8E%A9%E5%B9%B3%E5%8F%B0~35496%E5%A5%8Ccc~~%E5%A4%AA%E5%AD%90%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md
+
+### 民营经济发展环境持续优化改善
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E5%86%B0%E7%90%83%E7%AA%81%E7%A0%B4%E8%AF%95%E7%8E%A9%E5%B9%B3%E5%8F%B0~35496%E5%A5%8Ccc~~%E5%A4%AA%E5%AD%90%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md?/284
+
+### 外商投资准入负面清单再缩减
+| 来源：https://github.com/blakerenee4184/jptqf/commit/5d6abeef838b83a479c831f548a9835ca5208f01?/074
+
+### 自由贸易试验区制度创新成果推广
+| 来源：https://github.com/blakerenee4184/jptqf/commit/f66c512d54919304c45f680cce390c2710c1380c
+
+### 跨境服务贸易试点扩大至二十个省市
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81AG%E7%BD%91%E9%A1%B5%E7%89%88%E8%AF%95%E7%8E%A9%E5%85%A5%E5%8F%A3~53983%E5%A5%8Ccc~~hg57%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 进口贸易促进创新示范区新增十五个
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81AG%E7%BD%91%E9%A1%B5%E7%89%88%E8%AF%95%E7%8E%A9%E5%85%A5%E5%8F%A3~53983%E5%A5%8Ccc~~hg57%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/882
+
+### 出口产品质量安全示范区建设推进
+| 来源：https://github.com/blakerenee4184/jptqf/commit/f5c383fbc9a5a62181d87fbfc11b8a922e506d7c?/906
+
+### 贸易便利化水平全球排名提升
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E6%89%8B%E6%9C%BAmg%E5%86%B0%E7%90%83%E7%AA%81%E7%A0%B4%E5%9C%B0%E5%9D%80~82785%E5%A5%8Ccc~~%E5%A4%A9%E6%88%90%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md?/931
+
+### 人民币跨境支付系统覆盖更多国家
+| 来源：https://github.com/blakerenee4184/jptqf/commit/cf5c19adcfc09d444aa549af6e0022660c5a670a?/428
+
+### 双边本币互换协议规模进一步扩大
+| 来源：https://github.com/blakerenee4184/jptqf/commit/09ab9fcb4ab8897d78102c4c1f5adb551d28c7ee
+
+### 全球发展倡议项目落地成果显著
+| 来源：https://github.com/blakerenee4184/jptqf/commit/ff5f3de3f82550298feb994e48ea602a147b695b?/153
+
+### 全球安全倡议得到广泛国际认同
+| 来源：https://github.com/blakerenee4184/jptqf/commit/2d496dbf238b390f30238e5907c737081ec0638b
+
+### 文明交流互鉴活动在多国举办
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%8E%B0%E9%87%91%E4%B9%B0%E7%90%83%E5%85%85%E5%80%BC%E8%BD%AF%E4%BB%B6~74536%E5%A5%8Ccc~~NY%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md
+
+### 国际科技合作计划新增三十个项目
+| 来源：https://github.com/blakerenee4184/jptqf/commit/67b9d055fa74e2c5788a6cd19aa9f6d9c03fda5d
+
+### 教育对外开放水平持续提升
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E7%94%B5%E5%AD%90PG%E6%B8%B8%E6%88%8F%E6%80%8E%E4%B9%88%E4%B8%8B%E8%BD%BD~w83%E5%A5%8Ccc~~GOGO%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md
+
+### 文化贸易进出口总额稳步增长
+| 来源：https://github.com/blakerenee4184/jptqf/commit/daf52684997195a1c005eea5884bf36e36842e23
+
+### 体育对外交流合作不断深化
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E4%BA%A1%E7%81%B5%E5%A4%A7%E7%9B%97%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%EF%BD%90%EF%BD%87%E7%88%86%E5%88%86~22468%E5%A5%8Ccc~~1122%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md
+
+### 卫生健康国际合作抗击疫情贡献突出
+| 来源：https://github.com/blakerenee4184/jptqf/commit/b3d6daafcd8cd41fac7892cde4e33ebe66f33e84
+
+### 气候变化国际谈判发挥建设性作用
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81pg%E9%BA%BB%E5%B0%86%E5%A8%B1%E4%B9%90%E9%80%81%E4%BD%93%E9%AA%8C%E9%87%91%E4%B8%8B%E5%AE%98%E7%BD%91%E7%89%88%E6%9C%AC~k386%E5%A5%8Capp~~HG08%E6%B8%B8%E6%88%8F%E5%A4%A7%E5%8E%85.md
+
+### 海洋权益维护与国际合作稳步推进
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81pg%E9%BA%BB%E5%B0%86%E5%A8%B1%E4%B9%90%E9%80%81%E4%BD%93%E9%AA%8C%E9%87%91%E4%B8%8B%E5%AE%98%E7%BD%91%E7%89%88%E6%9C%AC~k386%E5%A5%8Capp~~HG08%E6%B8%B8%E6%88%8F%E5%A4%A7%E5%8E%85.md?/736
+
+### 极地科考取得多项重大科研突破
+| 来源：https://github.com/blakerenee4184/jptqf/commit/c31572b0de29c64bc47f9bd0265ec18ed8052cdf?/698
+
+### 深空探测国际合作协议正式签署
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81mg%E8%8A%B1%E8%8A%B1%E5%85%AC%E5%AD%90%E8%B6%85%E7%BA%A7%E5%A4%A7%E5%A5%96~714b%E5%A5%8Ccc~~OD%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md?/897
+
+### 网络空间国际治理话语权不断增强
+| 来源：https://github.com/blakerenee4184/jptqf/commit/22222539c3ff1cfd116105313a1d45097540cde6?/252
+
+### 我国科学家发现新型超导材料
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E8%A1%97%E6%9C%BA%E8%80%81%E8%99%8E%E6%9C%BA%E7%94%B5%E7%8E%A9%E5%9F%8E%E5%90%88%E9%9B%86~w83%E5%A5%8Ccc~~hg0088%E6%B3%A8%E5%86%8C%E5%A4%A7%E5%8E%85.md?/815
+
+### 全球首个海水提铀示范项目投产
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81%E9%BE%99%E8%99%8E%E5%92%8Capp%E8%BD%AF%E4%BB%B6~s9858%E5%A5%8Ccc~~HG08%E6%B8%B8%E6%88%8F%E5%A4%A7%E5%8E%85.md?/986
+
+### 柔性屏折叠寿命突破一百万次
+| 来源：https://github.com/blakerenee4184/jptqf/commit/6b3dadb271589cbe0c9d6530e9c24f38d424b4f5?/529
+
+### 国产大飞机商业航线开通新增十条
+| 来源：https://github.com/blakerenee4184/jptqf/commit/273b67672b5ead46c70c28097e7699be06626082
+
+### 高铁动车组新型节能技术投入应用
+| 来源：https://github.com/blakerenee4184/jptqf/commit/fe8c710755e0b324a63d5a8b1403b714bcc38824?/730
+
+### 量子通信干线安全传输距离创新高
+| 来源：https://github.com/blakerenee4184/jptqf/commit/dd726a81faae7588ec8342cca8296337149186c8
+
+### 干细胞治疗罕见病临床试验获批
+| 来源：https://github.com/blakerenee4184/jptqf/commit/10a7d565b38bdb0b4c42c932c5eba01274be87f5?/965
+
+### 基因编辑技术农作物品种通过审定
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d9cfa5c82f39b5b5ef0c11c008e387a72dc6f472
+
+### 固态电池装车测试里程突破千公里
+| 来源：https://github.com/blakerenee4184/jptqf/commit/96bee84393d4bd7f838226b097294d91a95ee7eb?/690
+
+### 工业软件国产替代率提升至 40%
+| 来源：https://github.com/blakerenee4184/jptqf/commit/d32338ab236318c8f2f50ec4dcd8eb68c3849579
+
+### 新型显示面板产能占全球近六成
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81PG%E7%94%B5%E5%AD%90%E8%B5%8F%E9%87%91%E5%A5%B3%E7%8E%8B%E9%AB%98%E6%89%8B%E6%8C%87%E7%82%B9~1472%E5%A5%8Ccc~~ayx%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md
+
+### 稀土永磁材料性能达到国际领先
+| 来源：https://github.com/blakerenee4184/jptqf/blob/main/batch_002/2026%EF%BC%81PG%E7%94%B5%E5%AD%90%E8%B5%8F%E9%87%91%E5%A5%B3%E7%8E%8B%E9%AB%98%E6%89%8B%E6%8C%87%E7%82%B9~1472%E5%A5%8Ccc~~ayx%E6%B3%A8%E5%86%8C%E5%85%A5%E5%8F%A3.md?/119
+
+
+
+所 En 求 Qf 皆 Yu  如愿，所 hc 行 7W 尽化平坦大道
